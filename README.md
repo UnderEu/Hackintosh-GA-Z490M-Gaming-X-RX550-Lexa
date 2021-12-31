@@ -1,0 +1,1 @@
+# Hackintosh-GA-Z490M-Gaming-X-RX550-Lexa
